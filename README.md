@@ -1,1 +1,6 @@
 # Rubik-s-Cube-AR
+
+On It Its Getting Developed...... 
+
+
+Stay Stun It Will Get To You....
